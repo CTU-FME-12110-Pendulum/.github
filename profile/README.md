@@ -6,3 +6,11 @@ The setup has also featured on multiple public events such as
 - International Industrial Fair in Brno (MSV)
 - Maker Faire
 - ...
+
+
+
+https://github.com/user-attachments/assets/4c55ee26-66c6-4ea9-87f0-f4f36bf31941
+
+
+
+
